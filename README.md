@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JeethendraKommina
-- 👀 I’m interested in Front End Development 
+- 👀 I’m interested in Front End Development, Web3 Technologies, NFT'S, Crypto currencies$$
 - 🌱 I’m currently mastering the skills of Front End Development 
 - 📫 How to reach me through jeethendrakommina@gmail.com
 
